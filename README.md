@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @melkameshet
+- 👋 Hi, I’m Melkameshet
 - 👀 I’m interested in variable stars 
 - 🌱 I’m currently learning my msc at university of cape town
 - 💞️ I’m looking to collaborate on ...
